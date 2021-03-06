@@ -1,1 +1,0 @@
-# Nurul-Manca-Bot-V3
